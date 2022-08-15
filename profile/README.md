@@ -1,5 +1,5 @@
 ## Hi there 👋
-ST4G3.fr will disapear, LWS is a shame. Going to OVH VPS. Stonk 🧙
+ST4G3.fr will disappear, LWS is a shame. Going to OVH VPS. Stonk 🧙
 <!--
 
 **Here are some ideas to get you started:**
