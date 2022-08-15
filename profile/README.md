@@ -1,5 +1,6 @@
 ## Hi there 👋
 ST4G3.fr will disappear, LWS is a shame. Going to OVH VPS. Stonk 🧙
+Temporary https://st4g3-it.github.io/GLOBAL/
 <!--
 
 **Here are some ideas to get you started:**
